@@ -9,4 +9,4 @@ Aus meiner Sicht der coolste und am meisten unterschätzte Avenger.
 > Willst du sein, wie die Welt dich sieht, 
 > oder wer du wirklich bist? 
 > Gefunden auf: https://www.myzitate.de/black-widow/
-<img src="https://www.free-largeimages.com/jaw-dropping-wallpaper-black-widow-avengers-infinity-war-artwork-2018-720x1280-wallpaper-14259/" />
+<img src="https://www.free-largeimages.com/wp-content/uploads/2019/08/98848104e797db6f49e7ce65fec65b64.jpg" />
