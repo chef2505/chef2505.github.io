@@ -1,10 +1,11 @@
 # Black Widow
 Aus meiner Sicht der coolste und am meisten unterschätzte Avenger.
-## Warum ist Sie mein Favorit?
+## Warum ist sie mein Favorit?
 * durchtrainiert
 * schwarze Lederklamotten
 * sehr gute Taktikkenntnisse
 * schwarzer Humor
+> Zitat:
 > Irgendwann muss man sich entscheiden. 
 > Willst du sein, wie die Welt dich sieht, 
 > oder wer du wirklich bist? 
